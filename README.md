@@ -1,6 +1,6 @@
 <!---comentários--->
 ![](https://i.gifer.com/LWrr.gif)
-![](https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fsearch%2Fkatherine-pierce-gifs&psig=AOvVaw15zcbvIJ4z2beFnAahqx7e&ust=1740703349156000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCJiiw8DP4osDFQAAAAAdAAAAABBs)
+![](https://www.google.com/url?sa=i&url=https%3A%2F%2Fmay0osh.tumblr.com%2Fpost%2F99096363682%2Fkatherine-pierce-gif-hunt-180-hq-gifs-of&psig=AOvVaw15zcbvIJ4z2beFnAahqx7e&ust=1740703349156000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqGAoTCJiiw8DP4osDFQAAAAAdAAAAABCUAQ)
   # sobre mim **MARIANA**
    ## *mary*
 - **olá, eu sou @pimentamary**
