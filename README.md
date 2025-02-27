@@ -1,5 +1,6 @@
 <!---comentários--->
 ![](https://i.gifer.com/LWrr.gif)
+![](https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fsearch%2Fkatherine-pierce-gifs&psig=AOvVaw15zcbvIJ4z2beFnAahqx7e&ust=1740703349156000&source=images&cd=vfe&opi=89978449&ved=0CBMQjRxqFwoTCJiiw8DP4osDFQAAAAAdAAAAABBs)
   # sobre mim **MARIANA**
    ## *mary*
 - **olá, eu sou @pimentamary**
